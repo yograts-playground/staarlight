@@ -1,5 +1,5 @@
-Privacy Policy for [Bot Name]
-Last Updated: [Date, e.g., October 24, 2026]
+Privacy Policy for ѕтααяℓιgнт˙⋆✮⋆˚࿔
+Last Updated: October 24, 2026
 
 This Privacy Policy explains how ѕтααяℓιgнт˙⋆✮⋆˚࿔ ("the Bot", "we", "us", or "our") handles information when you use our service across Discord and Minecraft. We are committed to processing only the minimum amount of data required to bridge your chat and notify you of server status.
 
